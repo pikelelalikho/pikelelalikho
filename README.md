@@ -55,7 +55,7 @@
 ## 📫 Contact Me
 
 - 📧 Email: [pikelelalikho@gmail.com](mailto:pikelelalikho@gmail.com)  
-- 📍 Location: Kwa-Thema, Springs  
+- 📍 Location: Bloekombos, Kraaifontain 
 - 📱 WhatsApp: +27 79 126 8223  
 
 ---
